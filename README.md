@@ -7,3 +7,5 @@ Meu nome é Lara Martins
 - Utlizo esse espaço para me organizar e compartilhar projetos desenvolvidos
 
 ## Espero que goste! 💖
+
+https://media1.tenor.com/m/ZfiA9iFoTsgAAAAC/pride-and-predjudice-elizabeth-bennet.gif
